@@ -1,1 +1,7 @@
 # HOZOO
+
+Yt : HOZOO WHITE HAT
+
+TIKTOK: HOZOO WHITE HAT
+
+DONASI :https://saweria.co/HOZOO 😁
